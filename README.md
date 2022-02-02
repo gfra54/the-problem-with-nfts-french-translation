@@ -1,5 +1,12 @@
-# Line Goes Up – The Problem With NFTs
+# Line Goes Up – The Problem With NFTs - French subtitles translation
 
-https://www.youtube.com/watch?v=YQ_xWvX1n9g&list=RDCMUCyNtlmLB73-7gtlBz00XOQQ&start_radio=1
 
-This is an attempt at making a french translation of 
+
+This is an attempt at making a french translation of Floding Ideas' video "Line Goes Up – The Problem With NFTs"
+
+
+
+![https://i3.ytimg.com/vi/YQ_xWvX1n9g/maxresdefault.jpg]()
+
+
+
